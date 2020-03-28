@@ -1,2 +1,3 @@
-hihihihihihi i love seventeen and dino
-seventeen is good group
+seventeen fnnicuinnsdjnfun
+cnofoficknoemomd
+dddpdcmmfoimis good group
